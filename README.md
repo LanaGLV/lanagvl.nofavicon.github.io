@@ -1,1 +1,1 @@
-# lanagvl.nofavicon.github.io
+# lanagvl.nofavicon.io
